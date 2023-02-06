@@ -1,1 +1,1 @@
-Christiano is my project partner
+Christiano is my best friend
